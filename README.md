@@ -1,0 +1,2 @@
+# Todoroki-Shouto
+Stronger, intelligencer
